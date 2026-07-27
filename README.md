@@ -1,16 +1,27 @@
-## Hi there 👋
+ <h6 align="center">
+<img src="https://github.com/user-attachments/assets/90bb6e68-afe6-4086-bd51-ac45446a7c20" />
 
-<!--
-**cchrisker/cchrisker** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+  
+ <h6 align="center">
+<a href="https://impracticallymurr.atabook.org/">ata</a> , 
+<a href="https://impracticallymurr.straw.page">straw</a> , <a href="https://rentry.co/impracticallymurr">f/o list</a> , <a href="https://en.pronouns.page/@impracticallymur
+">pronouns page</a> , <a href="https://artfight.net/~LumberDean/">artfight</a>
+<h6 align="center">
+<img src="https://komarev.com/ghpvc/?username=lumberdean&color=3B7492&label=⭐">
+</p>  
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+  <h6 align="center">
+<img src="https://github.com/user-attachments/assets/35790b41-2379-4710-afba-f559755c5b78" />
+
+ <h6 align="center">
+ i apologize if i dont respond!! im usually offtab, playing dbd or any other game where i cannot see my browser!! just go on my ata!!
+
+<p align="center">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31waoinuetthfmranoyj6kxp3bly&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=true&profanity=false&hide_remaster=false&bar_color_cover=false&bar_color=729d94">
+  </a>
+</p> 
+
+<h6 align="center">
+dont friend me to drop me quickly, im a VERY sensitive person
