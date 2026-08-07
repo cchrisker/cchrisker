@@ -15,7 +15,7 @@
 <img src="https://github.com/user-attachments/assets/35790b41-2379-4710-afba-f559755c5b78" />
 
  <h6 align="center">
- i apologize if i dont respond!! im usually offtab, playing dbd or any other game where i cannot see my browser!! just go on my ata!!
+usually offtab, w2i or sign ata
 
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
