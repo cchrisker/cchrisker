@@ -24,4 +24,4 @@ usually offtab, w2i or sign ata
 </p> 
 
 <h6 align="center">
-dont friend me to drop me quickly, im a VERY sensitive person
+i never start convos, dont expect me to in friendships
