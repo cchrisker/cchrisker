@@ -1,5 +1,7 @@
  <h6 align="center">
-<img src="https://github.com/user-attachments/assets/90bb6e68-afe6-4086-bd51-ac45446a7c20" />
+<img src="https://github.com/user-attachments/assets/3a367d71-d754-48ce-95ae-0f246ad49059" />
+
+<img src="https://github.com/user-attachments/assets/78732d92-acb9-40a5-9cd4-3360e805a3f1" />
 
 
   
@@ -8,11 +10,12 @@
 <a href="https://impracticallymurr.straw.page">straw</a> , <a href="https://en.pronouns.page/@cchrisker
 ">pronouns page</a> , <a href="https://guns.lol/cchrisker">guns</a>
 <h6 align="center">
-<img src="https://komarev.com/ghpvc/?username=lumberdean&color=3B7492&label=⭐">
+<img src="https://komarev.com/ghpvc/?username=lumberdean&color=b08c2a&label=🐾">
 </p>  
 
   <h6 align="center">
-<img src="https://github.com/user-attachments/assets/35790b41-2379-4710-afba-f559755c5b78" />
+<img src="https://github.com/user-attachments/assets/c8b6f6cc-fb5f-4bd6-9548-572ab6870d65" />
+
 
  <h6 align="center">
 usually offtab, w2i or sign ata
