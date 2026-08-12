@@ -6,7 +6,7 @@
  <h6 align="center">
 <a href="https://rentry.co/cchrisker">rentry</a> , <a href="https://cchrisker.atabook.org/">ata</a> , 
 <a href="https://impracticallymurr.straw.page">straw</a> , <a href="https://en.pronouns.page/@cchrisker
-">pronouns page</a>
+">pronouns page</a> , <a href="https://guns.lol/cchrisker">guns</a>
 <h6 align="center">
 <img src="https://komarev.com/ghpvc/?username=lumberdean&color=3B7492&label=⭐">
 </p>  
