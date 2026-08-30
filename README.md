@@ -1,8 +1,6 @@
+
  <h6 align="center">
-<img src="https://github.com/user-attachments/assets/3a367d71-d754-48ce-95ae-0f246ad49059" />
-
-<img src="https://github.com/user-attachments/assets/78732d92-acb9-40a5-9cd4-3360e805a3f1" />
-
+<img src="https://github.com/user-attachments/assets/0c0dce2d-6626-4824-ac72-a4547ee70d45" />
 
   
  <h6 align="center">
@@ -10,11 +8,11 @@
 <a href="https://impracticallymurr.straw.page">straw</a> , <a href="https://en.pronouns.page/@cchrisker
 ">pronouns page</a> , <a href="https://guns.lol/cchrisker">guns</a>
 <h6 align="center">
-<img src="https://komarev.com/ghpvc/?username=lumberdean&color=b08c2a&label=🐾">
+<img src="https://komarev.com/ghpvc/?username=lumberdean&color=483E3B&label=🐾">
 </p>  
 
   <h6 align="center">
-<img src="https://github.com/user-attachments/assets/c8b6f6cc-fb5f-4bd6-9548-572ab6870d65" />
+<img src="https://github.com/user-attachments/assets/21abc580-c3fe-46e4-a4bd-dec6a232c5a4" />
 
 
  <h6 align="center">
