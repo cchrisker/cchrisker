@@ -25,4 +25,4 @@ usually offtab, w2i or sign ata
 </p> 
 
 <h6 align="center">
-i never start convos, dont expect me to in friendships
+non/voidsharing albert wesker yumeshipper, doubles dni!
